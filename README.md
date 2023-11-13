@@ -9,4 +9,6 @@ https://github.com/marjanmokhtari/color-flipper/assets/143844652/4696fb11-2e10-4
 
 🐞- Developed by marjan mokhtari
 
+📲- How to reach me : with my [instagram](https://www.instagram.com/marjanmokhtari.web) and [linkedin](https://www.linkedin.com/in/marjanmokhtari)
+
 
